@@ -1,1 +1,0 @@
-# bem vindo ao meu repositório de estudos
